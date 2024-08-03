@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ponnipa Jantawong
-- 👀 I’m interested in Cactus Plants, Coding, Programming, Innovation and Farm
+- 👀 I’m interested in cactus plants, coding, programming, innovation, and farming.
 - 📫 How to reach me Email: ponnipa.oum@gmail.com
 - 📓 CV and Portfolio: https://ponnipa.in.th
 
